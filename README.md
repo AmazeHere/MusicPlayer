@@ -1,2 +1,2 @@
 # MusicPlayer
-I WANT TO KILL MYSELFFFFFFFFFFFF 
+ i tried
